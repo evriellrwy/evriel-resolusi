@@ -1,0 +1,1 @@
+# evriel-resolusi
